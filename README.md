@@ -1,1 +1,3 @@
-# greatadventuretreks
+Join <a href="https://greatadventuretreks.com/">Great Adventure Treks</a>, where every step is a story and every summit a triumph. Our expert guides lead you through breathtaking landscapes, from the towering peaks of the Himalayas to the lush trails of South America. Immerse yourself in the beauty of nature with Great Adventure Treks.
+
+Embark on the <a href="https://greatadventuretreks.com/trip/manaslu-circuit-trekking/">Manaslu Circuit Trek</a>, a mesmerizing Himalayan odyssey that takes you through diverse landscapes, from lush green valleys to high mountain deserts. Witness the grandeur of the eighth highest peak in the world, Mount Manaslu, and immerse yourself in the rich cultural tapestry of the region.
